@@ -22,13 +22,12 @@ Dans  [**Clinique Du Poux**](https://www.zoulespoux.com/)  l'éradication des in
 
 
 <p align="center">
-
 <img style="border: 1px solid rgb(199, 199, 199); max-width: 900px;"
       alt=""
       border="0"
-      data-original-height="453"
-      data-original-width="608"
-      src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgCHWuz52PKtHgKa87gkr5iwrBr-bIGvxE58QGuMvxJkQEsQm_Dbfo6fhQnQzVzr74sO17Hfe6DgljvvS5GBgRmJf9Q3wFEtfq7v-RCR0xzsjyPENY2Qg3yXD4c-TS3zleDzFvfDdjt0F2txpxOOOMW-muP1S1UjoY4_82z8bnzAMn_3HsH0aG23xeypfOA/s1600/map1.png"
+      data-original-height="587"
+      data-original-width="518"
+      src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi8Q_cLID8mLrr7hf4C19ytXULieJvhy44axb3Mmgvlt_MyT6C21WtC_wiJYvCaN-6JKgT63eVAzBRiEEmgj5WhyphenhyphenCo-bdL9RnNCkhxrqoHSRTyzul2xD8F2ytm163e-irgG-sfGkQw01xQyYtC2vdTeMc7wiqA0BZtb3HVjqUo1ehIMu3A4LWThTkFCX9VO/s1600/logo%20png.png"
   />
 </p>
 
