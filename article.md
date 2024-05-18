@@ -20,31 +20,17 @@ Les poux, de minuscules insectes parasites qui se nourrissent de sang humain, so
 
 Dans  [**Clinique Du Poux**](https://www.zoulespoux.com/)  l'éradication des infestations de poux implique une procédure systématique et minutieuse conçue pour assurer une élimination efficace tout en privilégiant le bien-être des clients. Le processus commence généralement par un examen complet du cuir chevelu et des cheveux de la personne affectée afin d'évaluer la gravité de l'infestation. Des techniciens qualifiés inspectent méticuleusement la présence de poux, de nymphes et de lentes à l'aide d'outils spécialisés tels que des loupes et des peignes fins. Cet examen minutieux permet de déterminer le traitement le plus approprié et adapté aux besoins de chaque individu.
 
-
-<p align="center">
+<a href="https://maps.app.goo.gl/1yMgBnM21sMiM9RK6?g_st=ic" style="border-bottom: none; display: block; padding: 1em 0px; text-align: center;" target="_blank">
+	<p align="center">
 <img style="border: 1px solid rgb(199, 199, 199); max-width: 900px;"
       alt=""
       border="0"
       data-original-height="453"
-      data-original-width="608"
-      src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgCHWuz52PKtHgKa87gkr5iwrBr-bIGvxE58QGuMvxJkQEsQm_Dbfo6fhQnQzVzr74sO17Hfe6DgljvvS5GBgRmJf9Q3wFEtfq7v-RCR0xzsjyPENY2Qg3yXD4c-TS3zleDzFvfDdjt0F2txpxOOOMW-muP1S1UjoY4_82z8bnzAMn_3HsH0aG23xeypfOA/s1600/map1.png"/>
-</p>
+      data-original-width="608"      src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgCHWuz52PKtHgKa87gkr5iwrBr-bIGvxE58QGuMvxJkQEsQm_Dbfo6fhQnQzVzr74sO17Hfe6DgljvvS5GBgRmJf9Q3wFEtfq7v-RCR0xzsjyPENY2Qg3yXD4c-TS3zleDzFvfDdjt0F2txpxOOOMW-muP1S1UjoY4_82z8bnzAMn_3HsH0aG23xeypfOA/s1600/map1.png"/> </a></p>
 
 
 <p align="center">
-
-  <a
-    href="https://maps.app.goo.gl/1yMgBnM21sMiM9RK6?g_st=ic"
-    style="border-bottom: none; display: block; padding: 1em 0px; text-align: center;"
-    target="_blank"
-    ><img style="border: 1px solid rgb(199, 199, 199); max-width: 900px;"
-      alt=""
-      border="0"
-      data-original-height="453"
-      data-original-width="608"
-      src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgCHWuz52PKtHgKa87gkr5iwrBr-bIGvxE58QGuMvxJkQEsQm_Dbfo6fhQnQzVzr74sO17Hfe6DgljvvS5GBgRmJf9Q3wFEtfq7v-RCR0xzsjyPENY2Qg3yXD4c-TS3zleDzFvfDdjt0F2txpxOOOMW-muP1S1UjoY4_82z8bnzAMn_3HsH0aG23xeypfOA/s1600/map1.png"/>
-      </a>
-
+  <a href="https://maps.app.goo.gl/1yMgBnM21sMiM9RK6?g_st=ic" style="border-bottom: none; display: block; padding: 1em 0px; text-align: center;" target="_blank"><img style="border: 1px solid rgb(199, 199, 199); max-width: 900px;" border="0" data-original-height="453" data-original-width="608" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgCHWuz52PKtHgKa87gkr5iwrBr-bIGvxE58QGuMvxJkQEsQm_Dbfo6fhQnQzVzr74sO17Hfe6DgljvvS5GBgRmJf9Q3wFEtfq7v-RCR0xzsjyPENY2Qg3yXD4c-TS3zleDzFvfDdjt0F2txpxOOOMW-muP1S1UjoY4_82z8bnzAMn_3HsH0aG23xeypfOA/s1600/map1.png"/></a>
 </p>
 
 
