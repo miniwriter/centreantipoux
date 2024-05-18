@@ -20,7 +20,7 @@ Les poux, de minuscules insectes parasites qui se nourrissent de sang humain, so
 
 Dans  [**Clinique Du Poux**](https://www.zoulespoux.com/)  l'éradication des infestations de poux implique une procédure systématique et minutieuse conçue pour assurer une élimination efficace tout en privilégiant le bien-être des clients. Le processus commence généralement par un examen complet du cuir chevelu et des cheveux de la personne affectée afin d'évaluer la gravité de l'infestation. Des techniciens qualifiés inspectent méticuleusement la présence de poux, de nymphes et de lentes à l'aide d'outils spécialisés tels que des loupes et des peignes fins. Cet examen minutieux permet de déterminer le traitement le plus approprié et adapté aux besoins de chaque individu.
 
-
+<p align="center">
 <div class="separator" style="clear: both;">
   <a
     href="https://maps.app.goo.gl/1yMgBnM21sMiM9RK6?g_st=ic"
@@ -34,7 +34,7 @@ Dans  [**Clinique Du Poux**](https://www.zoulespoux.com/)  l'éradication des in
       src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgCHWuz52PKtHgKa87gkr5iwrBr-bIGvxE58QGuMvxJkQEsQm_Dbfo6fhQnQzVzr74sO17Hfe6DgljvvS5GBgRmJf9Q3wFEtfq7v-RCR0xzsjyPENY2Qg3yXD4c-TS3zleDzFvfDdjt0F2txpxOOOMW-muP1S1UjoY4_82z8bnzAMn_3HsH0aG23xeypfOA/s1600/map1.png"
   /></a>
 </div>
-
+</p>
 
 
 Suite au diagnostic, les [protocoles de traitement](https://c.leprogres.fr/economie/2024/03/13/a-26-ans-elle-se-reconvertit-dans-l-extermination-des-poux-de-tete) sont mis en œuvre avec précision et soin. Selon la gravité de l'infestation et les préférences du client, diverses options de traitement peuvent être proposées, notamment des shampooings médicamenteux, des lotions ou des remèdes alternatifs. Les techniciens s'assurent que les traitements sont appliqués correctement, en suivant les instructions du produit et en respectant les consignes de sécurité. De plus, les clients sont informés des mesures préventives et reçoivent des conseils pour maintenir un environnement sans poux à la maison. Des rendez-vous de suivi réguliers peuvent être programmés pour suivre les progrès et répondre à toute préoccupation persistante, garantissant ainsi que les clients reçoivent un soutien complet tout au long du processus d'éradication des poux.
@@ -43,7 +43,7 @@ Suite au diagnostic, les [protocoles de traitement](https://c.leprogres.fr/econo
 
 Au-delà du simple inconfort, les infestations de poux peuvent avoir des [conséquences importantes](https://c.leprogres.fr/economie/2024/05/15/un-centre-de-traitement-anti-poux-vient-d-ouvrir-rue-mulsant) sur la santé. Un grattage excessif des zones touchées peut entraîner des infections cutanées et une inflammation. Dans les cas graves, une anémie peut se développer en raison de la perte de sang due à l'alimentation répétée des poux. De plus, les infestations de poux peuvent avoir des conséquences sociales et psychologiques, notamment chez les enfants et les adolescents. La stigmatisation associée à l’infestation de poux peut entraîner des sentiments de gêne, d’isolement et une faible estime de soi, ce qui a un impact sur les interactions sociales et les résultats scolaires. Il est crucial de lutter rapidement contre les infestations de poux pour atténuer ces conséquences sanitaires et psychosociales, favorisant ainsi le bien-être général et la qualité de vie.
 
-
+<p align="center">
 <div class="separator" style="clear: both;">
   <a
     href="https://maps.app.goo.gl/U8SnQuzQfLnehzxh8?g_st=ic"
@@ -57,7 +57,7 @@ Au-delà du simple inconfort, les infestations de poux peuvent avoir des [consé
       src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiYAtF98FkUGtY4X4d_df76O9TkfPWIb4fCMKgAgz7_7ZCH0XjY30FaNNxBuou3EaL1fx1ZKHcjQC0XCr_nBYe9INVkqXdARjgf7tl9xQhRlVPSlrH5fJWmD96b1tAeL5qKUMjjfzx0Pgqgy16cdhEwAvI_Kv4JNQY7Ji7Bpx7rngre3VKkD5sjfrxaQefg/s1600/map2.png"
   /></a>
 </div>
-
+</p>
 
 Pour les personnes souffrant d’une infestation de poux, l’expérience peut être à la fois physiquement inconfortable et émotionnellement pénible. Les démangeaisons incessantes causées par les piqûres de poux peuvent entraîner une irritation et une frustration, perturbant les activités quotidiennes et affectant les habitudes de sommeil. De plus, la stigmatisation sociale associée aux infestations de poux peut exacerber les sentiments de gêne et de honte, conduisant à l’isolement et à une perte de confiance en soi. Chez les enfants, en particulier, la présence de poux peut entraîner des taquineries ou des brimades de la part de leurs pairs, ce qui a un impact supplémentaire sur leur bien-être émotionnel et leurs interactions sociales.
 
