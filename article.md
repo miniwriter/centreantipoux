@@ -14,15 +14,7 @@
   /></a>
 </p>
 
-## Contact ZOU LES POUX
 
-**Address:** 44 Quai de Pierre-Scize – 69009 Lyon, **Address 2:** 45 rue Mulsant – 42300 Roanne
-
-**Tél:** 06 67 17 71 91
-
-**Email:** zoulespoux@gmail.com
-
-**Ouverture:** Lundi-Vendredi 9:30 – 20:00, Samedi-Dimanche 08:00- 20:00
 
 Les poux, de minuscules insectes parasites qui se nourrissent de sang humain, sont une nuisance courante dans le monde entier. Il en existe trois types principaux : les poux de tête, les poux de corps et les poux du pubis, chacun adapté à différentes régions du corps. Les poux de tête, présents sur le cuir chevelu et les cheveux, sont les plus répandus, surtout chez les enfants. Les poux de corps habitent les vêtements et la literie, tandis que les poux du pubis infestent principalement les poils pubiens. Les symptômes d'une infestation de poux comprennent souvent des démangeaisons, des rougeurs et des irritations, dont la gravité peut varier en fonction de la sensibilité individuelle et de l'étendue de l'infestation.
 
@@ -73,3 +65,13 @@ Notre discussion a porté sur une exploration approfondie de la question complex
 De plus, nous avons examiné minutieusement les procédures suivies par les centres anti-poux pour éradiquer les infestations de poux. Des examens méticuleux aux plans de traitement sur mesure, ces centres mettent en œuvre une approche systématique visant à garantir une éradication complète tout en donnant la priorité au bien-être des clients. La discussion a porté sur l'application de traitements, en soulignant l'importance du respect des instructions et de la mise en œuvre de mesures de contrôle environnemental pour prévenir la réinfestation.
 
 Dans l’ensemble, notre dialogue a constitué une enquête approfondie sur l’infestation par les poux et sur la diversité des stratégies de traitement disponibles, fournissant des informations précieuses sur les complexités de la gestion de cette maladie courante mais difficile.
+
+## Contact ZOU LES POUX
+
+**Address:** 44 Quai de Pierre-Scize – 69009 Lyon, **Address 2:** 45 rue Mulsant – 42300 Roanne
+
+**Tél:** 06 67 17 71 91
+
+**Email:** zoulespoux@gmail.com
+
+**Ouverture:** Lundi-Vendredi 9:30 – 20:00, Samedi-Dimanche 08:00- 20:00
