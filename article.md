@@ -17,8 +17,11 @@
 ## Contact ZOU LES POUX
 
 **Address:** 44 Quai de Pierre-Scize – 69009 Lyon, **Address 2:** 45 rue Mulsant – 42300 Roanne
+
 **Tél:** 06 67 17 71 91
+
 **Email:** zoulespoux@gmail.com
+
 **Ouverture:** Lundi-Vendredi 9:30 – 20:00, Samedi-Dimanche 08:00- 20:00
 
 Les poux, de minuscules insectes parasites qui se nourrissent de sang humain, sont une nuisance courante dans le monde entier. Il en existe trois types principaux : les poux de tête, les poux de corps et les poux du pubis, chacun adapté à différentes régions du corps. Les poux de tête, présents sur le cuir chevelu et les cheveux, sont les plus répandus, surtout chez les enfants. Les poux de corps habitent les vêtements et la literie, tandis que les poux du pubis infestent principalement les poils pubiens. Les symptômes d'une infestation de poux comprennent souvent des démangeaisons, des rougeurs et des irritations, dont la gravité peut varier en fonction de la sensibilité individuelle et de l'étendue de l'infestation.
